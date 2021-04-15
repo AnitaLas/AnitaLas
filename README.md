@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Nusiek
+- 👀 I’m interested in ... God only know with what xD
+- 🌱 I’m currently learning Selenium IDE
+- 📫 nusiek.al@gmail.com
