@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Nusiek
-- 🌱 I’m currently learning new
+- 🌱 I’m currently learning something new
